@@ -2,4 +2,4 @@
 ## Hey, I’m [@haqaliz](https://twitter.com/haqaliz), (👀 **Ali Haqiqi**)
 
 > 🧬 Fueling Tomorrow's Triumphs 🤙🏿 You
-can reach me on [Linkedin](https://www.linkedin.com/in/alializade/).
+can reach me on [Linkedin](https://www.linkedin.com/in/haqaliz/).
